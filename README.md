@@ -9,9 +9,10 @@ While I am still searching, I am currently a research assistant with Professor Y
 I enjoy hiking and cooking yummy foods a lot. I also make videos online (I vlogged once a year for all 4 years of college!).
 
 ### Contact Information
-I've linked my LinkedIn to my GitHub profile. You could also reach me through email: jlee808@binghamton.edu
+The easiest way to reach me is by email: **jlee808@binghamton.edu**.  
+You can also find me on [LinkedIn](https://www.linkedin.com/in/jui-hsin-lee/) — I’m always happy to connect! 
 
-PS: This README is loosely inspired by my mentor Timur
+PS: This README is loosely inspired by my mentor Timur.
 
 <!--
 **jlee5205/jlee5205** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
