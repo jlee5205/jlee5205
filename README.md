@@ -8,6 +8,8 @@ While I am still searching, I am currently a research assistant with Professor Y
 ### Casual Background
 I enjoy hiking and cooking yummy foods a lot. I also make videos online (I vlogged once a year for all 4 years of college!).
 
+I also like art, particularly pieces from the Impressionist movement. My two favorite works are [The Garden of the Tuileries on a Winter Afternoon](https://en.wikipedia.org/wiki/The_Garden_of_the_Tuileries_on_a_Winter_Afternoon) and [Landscape with Flock of Sheep](https://www.nortonsimon.org/art/detail/P.1964.24), both by by Camille Pissarro. 
+
 ### Contact Information
 The easiest way to reach me is by email: **jlee808@binghamton.edu**.  
 You can also find me on [LinkedIn](https://www.linkedin.com/in/jui-hsin-lee/) — I’m always happy to connect! 
